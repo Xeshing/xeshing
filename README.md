@@ -1,6 +1,3 @@
-Hello, 
+Hello everyone,
 
-I'm Xeshing, 21y, France.
-Recently started my first year in IT studies, i'm a beginner. 
-Previously I was doing motion design and graphic design.
-Most of the stuff I upload here is mostly school tasks.
+I'm Xeshing, 21 years old, France. I recently started my first year of IT studies, I'm a beginner. I used to do motion design and graphic design. Most of the stuff I upload here is mostly school work.
